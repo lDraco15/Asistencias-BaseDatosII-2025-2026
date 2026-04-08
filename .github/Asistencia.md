@@ -12,3 +12,5 @@ Asitencia dia 16/03/26 Abner Villeda/61/A
 Asistencia dia 18/03/26 Abner Villeda/61/A
 
 Asistencia dia 23/03/26 Abner Villeda/61/A
+
+Asistencia dia 08/04/26 Abner Villeda/61/A
